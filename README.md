@@ -1,4 +1,1 @@
-# 3arth4ck-Configs
-every single 3arth4ck config i have
- da bo
- 
+If you want me to put your config write me on discord chara#8951
