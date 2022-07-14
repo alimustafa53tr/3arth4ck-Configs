@@ -1,2 +1,2 @@
-If you want me to put your config write me on discord 53d#8951
+# If you want me to put your config write me on discord 53d#8951 or ZANE#4417
 stop dming me about which config is better stop dming me about which config is better stop dming me about which config is better stop dming me about which config is better stop dming me about which config is better stop dming me about which config is better stop dming me about which config is better stop dming me about which config is better stop dming me about which config is better ,
